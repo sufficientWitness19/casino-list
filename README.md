@@ -48,7 +48,7 @@ Below are platforms I’ve personally tested — with notes on their bonuses, fe
 - **Bonus Expiry:** 14 days
 
 **Highlights:**
-- Open to Australian, Canadian & EU players  
+- Open to Australian, Canadian & USA players  
 - Good variety of slots + live dealers  
 - 24/7 live chat support  
 - Weekly reload bonuses + weekend free spins
