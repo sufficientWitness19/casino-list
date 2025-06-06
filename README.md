@@ -64,36 +64,60 @@ Below are platforms I’ve personally tested — with notes on their bonuses, fe
 
 ---
 
-## Crownplay Casino – AU  
-**Link:** [Crownplay AU – 400 EUR CPA](https://crownplaylink.com/o1c87552a)  
-**Bonus:** Varies by promotion – high-value CPA offer  
+## Crownplay Casino – Australia  
+**Link:** [Crownplay AU](https://crownplaylink.com/o1c87552a)  
+**Overview:**  
+A sleek and user-friendly online casino offering a strong variety of slots, table games, and live dealer options. Well-optimized for mobile play and trusted by many Aussie players for its reliable payouts and fast customer support.  
+
+**Highlights:**  
+- Wide game selection from top providers  
+- Mobile-friendly interface  
+- Fast withdrawals  
+- Supports AUD and crypto  
 **GEO:** Australia  
 
 ---
 
-## Crowngold Casino – AU  
-**Link:** [Crowngold AU – 400 EUR CPA](https://crowngoldlink.com/odc360284)  
-**Bonus:** Varies by promotion – high-value CPA offer  
+## Crowngold Casino – Australia  
+**Link:** [Crowngold AU](https://crowngoldlink.com/odc360284)  
+**Overview:**  
+Focused on providing an immersive gaming experience for Australian users, Crowngold blends crypto-friendly options with classic casino features. Great for slot enthusiasts and casual players looking for a smooth experience.  
+
+**Highlights:**  
+- Easy registration process  
+- Variety of slots and table games  
+- 24/7 customer support  
+- Accepts crypto & fiat  
 **GEO:** Australia  
 
 ---
 
-## Crownplay Casino – CA  
-**Link:** [Crownplay CA – 500 EUR CPA](https://crownplaylink.com/o012b7cba)  
-**Bonus:** Varies by promotion – high-value CPA offer  
+## Crownplay Casino – Canada  
+**Link:** [Crownplay CA](https://crownplaylink.com/o012b7cba)  
+**Overview:**  
+A modern crypto-compatible casino built with Canadian players in mind. Crownplay offers generous promotions, frequent tournaments, and a seamless gameplay experience across all devices.  
+
+**Highlights:**  
+- Crypto and CAD options  
+- Frequent slot tournaments  
+- Beginner-friendly layout  
+- Responsive support  
 **GEO:** Canada  
 
 ---
 
-## Crowngold Casino – CA  
-**Link:** [Crowngold CA – 500 EUR CPA](https://crowngoldlink.com/o305ace35)  
-**Bonus:** Varies by promotion – high-value CPA offer  
+## Crowngold Casino – Canada  
+**Link:** [Crowngold CA](https://crowngoldlink.com/o305ace35)  
+**Overview:**  
+Trusted by many Canadian players, Crowngold offers a strong mix of video slots, live dealers, and fast cashout options. Designed to cater to both newcomers and experienced gamblers with a focus on security and ease of use.  
+
+**Highlights:**  
+- Solid range of live casino games  
+- Crypto payments available  
+- Smooth withdrawal process  
+- Loyalty rewards and promotions  
 **GEO:** Canada  
 
----
-
-These platforms were tested personally through multiple deposits, withdrawals, and support experiences.  
-If you're new to crypto gambling and want guidance on sign-up, wallets, or bonuses — feel free to reach out.
 
 
 > ✳️ These are platforms I personally use and tested across multiple deposits/withdrawals.  
