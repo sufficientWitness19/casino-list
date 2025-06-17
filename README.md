@@ -32,7 +32,7 @@ Regular cashback, weekend bonuses, reloads, and birthday gifts.
 ## 🎰 Crownplay Casino  
 🔗 [AU](https://crownplaylink.com/o1c87552a) | [CA](https://crownplaylink.com/o012b7cba)
 
-[Additional bonus AU](https://crownplaylink.com/oddba5598) Promo:##BONUSWIN | [Additional bonus CA](https://crownplaylink.com/o30e82146) Promo: ##LUCKYWIN
+[Additional bonus AU](https://crownplaylink.com/oddba5598) Promo: **BONUSWIN** | [Additional bonus CA](https://crownplaylink.com/o30e82146) Promo: **LUCKYWIN**
 ### Bonus Program
 Custom-tailored welcome bonuses for both Australian and Canadian players with a fast, smooth signup experience.
 
