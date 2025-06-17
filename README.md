@@ -48,7 +48,7 @@ Includes cashback, reloads, and prioritized withdrawals with VIP management.
 ## 🎰 7Bit Casino  
 🔗 [Join 7Bit](https://7bit.partners/p9a17e30d)
 
-### 🎁 Bonus Program
+### Bonus Program
 Up to 5 BTC + 100 Free Spins:
 
 - 1st Deposit: 100% up to 1.5 BTC + 100 FS  
@@ -59,7 +59,7 @@ Up to 5 BTC + 100 Free Spins:
 ### 💎 VIP Program
 Tiered cashback system, regular reload bonuses, and personal account managers.
 
-### 📜 Wagering Requirements
+### Wagering Requirements
 - Deposit Bonuses: 40x  
 - Free Spins: 45x  
 - Max Bet: 0.23 mBTC  
