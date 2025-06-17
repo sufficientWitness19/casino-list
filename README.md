@@ -6,6 +6,7 @@ Below are platforms I’ve personally tested — with notes on their bonuses, fe
 
 ## 🎰 Katsubet Casino  
 🔗 [Join Katsubet](https://katsubet.partners/pd2a32405)
+[Additional bonus 50%+100FS](https://katsubet.partners/p57375a91)
 
 ### Bonus Program
 Up to 5 BTC + 100 Free Spins across your first four deposits:
@@ -29,7 +30,7 @@ Regular cashback, weekend bonuses, reloads, and birthday gifts.
 
 ## 🎰 Crownplay Casino  
 🔗 [AU](https://crownplaylink.com/o1c87552a) | [CA](https://crownplaylink.com/o012b7cba)
-
+[Additional bonus AU](https://crownplaylink.com/oddba5598) Promo:##BONUSWIN | [Additional bonus CA](https://crownplaylink.com/o30e82146) Promo: ##LUCKYWIN
 ### Bonus Program
 Custom-tailored welcome bonuses for both Australian and Canadian players with a fast, smooth signup experience.
 
@@ -47,7 +48,7 @@ Includes cashback, reloads, and prioritized withdrawals with VIP management.
 
 ## 🎰 7Bit Casino  
 🔗 [Join 7Bit](https://7bit.partners/p9a17e30d)
-
+[Additional bonus 50%+150FS](https://7bit.partners/pb60cdfe2)
 ### Bonus Program
 Up to 5 BTC + 100 Free Spins:
 
