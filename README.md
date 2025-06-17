@@ -27,29 +27,6 @@ Regular cashback, weekend bonuses, reloads, and birthday gifts.
 
 ---
 
-## 🎰 7Bit Casino  
-🔗 [Join 7Bit](https://7bit.partners/p9a17e30d)
-
-### Bonus Program
-Up to 5 BTC + 100 Free Spins:
-
-- 1st Deposit: 100% up to 1.5 BTC + 100 FS  
-- 2nd Deposit: 50% up to 1.25 BTC  
-- 3rd Deposit: 50% up to 1.25 BTC  
-- 4th Deposit: 100% up to 1 BTC  
-
-### 💎 VIP Program
-Tiered cashback system, regular reload bonuses, and personal account managers.
-
-### Wagering Requirements
-- Deposit Bonuses: 40x  
-- Free Spins: 45x  
-- Max Bet: 0.23 mBTC  
-- Bonus Expiry: 14 days  
-- Slots count 100% toward wagering
-
----
-
 ## 🎰 Crownplay Casino  
 🔗 [AU](https://crownplaylink.com/o1c87552a) | [CA](https://crownplaylink.com/o012b7cba)
 
@@ -66,6 +43,28 @@ Includes cashback, reloads, and prioritized withdrawals with VIP management.
 - No max cashout on initial bonus  
 - GEOs: 🇦🇺 AU & 🇨🇦 CA accepted
 
+---
+
+## 🎰 7Bit Casino  
+🔗 [Join 7Bit](https://7bit.partners/p9a17e30d)
+
+### 🎁 Bonus Program
+Up to 5 BTC + 100 Free Spins:
+
+- 1st Deposit: 100% up to 1.5 BTC + 100 FS  
+- 2nd Deposit: 50% up to 1.25 BTC  
+- 3rd Deposit: 50% up to 1.25 BTC  
+- 4th Deposit: 100% up to 1 BTC  
+
+### 💎 VIP Program
+Tiered cashback system, regular reload bonuses, and personal account managers.
+
+### 📜 Wagering Requirements
+- Deposit Bonuses: 40x  
+- Free Spins: 45x  
+- Max Bet: 0.23 mBTC  
+- Bonus Expiry: 14 days  
+- Slots count 100% toward wagering
 ---
 
 ## 🎰 Crowngold Casino  
