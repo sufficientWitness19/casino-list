@@ -4,93 +4,84 @@ Below are platforms I’ve personally tested — with notes on their bonuses, fe
 
 ---
 
-## 7Bit Casino  
-**Link:** [7Bit Casino](https://7bit.partners/p9a17e30d)  
-**Welcome Bonus:** Up to 5 BTC + 100 Free Spins  
+## 🎰 Katsubet Casino  
+🔗 [Join Katsubet](https://katsubet.partners/pd2a32405)
 
-**Bonus Breakdown:**  
-- 1st Deposit: 100% up to 1.5 BTC + 100 Free Spins  
-- 2nd Deposit: 50% up to 1.25 BTC  
-- 3rd Deposit: 50% up to 1.25 BTC  
-- 4th Deposit: 100% up to 1 BTC  
+### Bonus Program
+Up to 5 BTC + 100 Free Spins across your first four deposits:
 
-**Wagering Requirements:**  
-- Deposit Bonuses: 40x  
-- Free Spins: 45x  
-- Game Contribution: Slots 100%, Table Games 5%, Live Games 0%  
-- Max Bet with Bonus: 0.23 mBTC  
-- Bonus Expiry: 14 days  
-
-**GEO:** Global  
-
----
-
-## Katsubet Casino  
-**Link:** [Katsubet](https://katsubet.partners/pd2a32405)  
-**Welcome Bonus:** Up to 5 BTC + 100 Free Spins across first 4 deposits  
-
-**Bonus Breakdown:**  
 - 1st Deposit: 100% up to 1.5 BTC + 100 Free Spins  
 - 2nd Deposit: 75% up to 1.25 BTC  
 - 3rd Deposit: 50% up to 1.25 BTC  
 - 4th Deposit: 100% up to 1 BTC  
 
-**Wagering Requirements:**  
+### 💎 VIP Program
+Regular cashback, weekend bonuses, reloads, and birthday gifts.
+
+### Wagering Requirements
 - Deposit Bonuses: 40x  
 - Free Spins: 45x  
 - Max Bet: 0.23 mBTC  
 - Bonus Expiry: 14 days  
-
-**GEO:** Australia, Canada, USA  
+- Slot Contribution: 100%  
 
 ---
 
-## Mirax Casino  
-**Link:** [Mirax Casino](https://mirax.partners/p699d165a)  
-**Welcome Bonus:** Up to 5 BTC + 150 Free Spins across first 4 deposits  
+## 🎰 7Bit Casino  
+🔗 [Join 7Bit](https://7bit.partners/p9a17e30d)
 
-**Bonus Breakdown:**  
-- 1st Deposit: 100% up to 1.5 BTC + 100 Free Spins  
-- 2nd Deposit: 75% up to 1.25 BTC + 50 Free Spins (Code: W2)  
-- 3rd Deposit: 50% up to 1.25 BTC (Code: W3)  
-- 4th Deposit: 100% up to 1 BTC (Code: W4)  
+### Bonus Program
+Up to 5 BTC + 100 Free Spins:
 
-**Wagering Requirements:**  
-- All Bonuses and Free Spins: 35x  
+- 1st Deposit: 100% up to 1.5 BTC + 100 FS  
+- 2nd Deposit: 50% up to 1.25 BTC  
+- 3rd Deposit: 50% up to 1.25 BTC  
+- 4th Deposit: 100% up to 1 BTC  
+
+### 💎 VIP Program
+Tiered cashback system, regular reload bonuses, and personal account managers.
+
+### Wagering Requirements
+- Deposit Bonuses: 40x  
+- Free Spins: 45x  
+- Max Bet: 0.23 mBTC  
 - Bonus Expiry: 14 days  
-- Game Contribution: Slots 100%, Table Games 5%, Live Games 0%  
-
-**GEO:** Global  
+- Slots count 100% toward wagering
 
 ---
 
-## Crownplay Casino 
-**Link:** [Crownplay AU](https://crownplaylink.com/o1c87552a)/[Crownplay CA](https://crownplaylink.com/o012b7cba)
- 
-**Overview:**  
-A sleek and user-friendly online casino offering a strong variety of slots, table games, and live dealer options. Well-optimized for mobile play and trusted by many Aussie players for its reliable payouts and fast customer support.  
+## 🎰 Crownplay Casino  
+🔗 [AU](https://crownplaylink.com/o1c87552a) | [CA](https://crownplaylink.com/o012b7cba)
 
-**Highlights:**  
-- Wide game selection from top providers  
-- Mobile-friendly interface  
-- Fast withdrawals  
-- Supports AUD and crypto  
-**GEO:** Australia,Canada  
+### Bonus Program
+Custom-tailored welcome bonuses for both Australian and Canadian players with a fast, smooth signup experience.
+
+### 💎 VIP Program
+Includes cashback, reloads, and prioritized withdrawals with VIP management.
+
+### Wagering Requirements
+- Wagering: 35x  
+- Bonus Expiry: 21 days  
+- Eligible Games: Slots (100%), others vary  
+- No max cashout on initial bonus  
+- GEOs: 🇦🇺 AU & 🇨🇦 CA accepted
 
 ---
 
-## Crowngold Casino   
-**Link:** [Crowngold AU](https://crowngoldlink.com/odc360284)/[Crowngold CA](https://crowngoldlink.com/o305ace35)  
-**Overview:**  
-Focused on providing an immersive gaming experience for Australian users, Crowngold blends crypto-friendly options with classic casino features. Great for slot enthusiasts and casual players looking for a smooth experience.  
+## 🎰 Crowngold Casino  
+🔗 [AU](https://crowngoldlink.com/odc360284) | [CA](https://crowngoldlink.com/o305ace35)
 
-**Highlights:**  
-- Easy registration process  
-- Variety of slots and table games  
-- 24/7 customer support  
-- Accepts crypto & fiat  
-**GEO:** Australia, Canada  
+### Bonus Program
+Clean UI, responsive on mobile, and welcome bonuses with high-value spins and slot variety for players in both regions.
 
+### 💎 VIP Program
+Weekly rewards, exclusive reloads, cashback tiers, and dedicated account support.
+
+### Wagering Requirements
+- Wagering: 35x  
+- Bonus Validity: 21 days  
+- Full wagering on slots (100%)  
+- GEOs: 🇦🇺 AU & 🇨🇦 CA accepted
 
 
 
