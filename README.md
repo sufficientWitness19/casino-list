@@ -31,28 +31,26 @@ Currently no bonus from me, but regular offers, crypto reloads, and exclusive pr
 
 ---
 
-## 🎰 Crownplay Casino  
-🔗 [AU](https://crownplaylink.com/o1c87552a) | [CA](https://crownplaylink.com/o012b7cba)
+## 🎰 Crowngold Casino  
+🔗 [AU](https://crowngoldlink.com/odc360284) | [CA](https://crowngoldlink.com/o305ace35)
 
-[Additional bonus AU](https://crownplaylink.com/oddba5598) Promo: **BONUSWIN** | [Additional bonus CA](https://crownplaylink.com/o30e82146) Promo: **LUCKYWIN**
 ### Bonus Program
-Custom-tailored welcome bonuses for both Australian and Canadian players with a fast, smooth signup experience.
+Clean UI, responsive on mobile, and welcome bonuses with high-value spins and slot variety for players in both regions.
 
 ### 💎 VIP Program
-Includes cashback, reloads, and prioritized withdrawals with VIP management.
+Weekly rewards, exclusive reloads, cashback tiers, and dedicated account support.
 
 ### Wagering Requirements
 - Wagering: 35x  
-- Bonus Expiry: 21 days  
-- Eligible Games: Slots (100%), others vary  
-- No max cashout on initial bonus  
+- Bonus Validity: 21 days  
+- Full wagering on slots (100%)  
 ## Region Availability
 🇦🇺 AU & 🇨🇦 CA accepted
 
 ---
 
 ## 🎰 WinSpirit Casino  
-🔗 [Join WinSpirit](https://winspirit-game.com/click?o=1&a=10131&c=79&link_id=10)
+🔗 [WinSpirit CA](https://winspirit-game.com/click?o=1&a=10131&c=79&link_id=10)
 
 Currently no active bonus from me, but frequent promo codes and reloads are available.
 
@@ -76,25 +74,25 @@ Currently no active bonus from me, but frequent promo codes and reloads are avai
 ## Region Availability  
 🇨🇦 Canada only
 
+---
 
+## 🎰 Crownplay Casino  
+🔗 [AU](https://crownplaylink.com/o1c87552a) | [CA](https://crownplaylink.com/o012b7cba)
 
-## 🎰 Crowngold Casino  
-🔗 [AU](https://crowngoldlink.com/odc360284) | [CA](https://crowngoldlink.com/o305ace35)
-
+[Additional bonus AU](https://crownplaylink.com/oddba5598) Promo: **BONUSWIN** | [Additional bonus CA](https://crownplaylink.com/o30e82146) Promo: **LUCKYWIN**
 ### Bonus Program
-Clean UI, responsive on mobile, and welcome bonuses with high-value spins and slot variety for players in both regions.
+Custom-tailored welcome bonuses for both Australian and Canadian players with a fast, smooth signup experience.
 
 ### 💎 VIP Program
-Weekly rewards, exclusive reloads, cashback tiers, and dedicated account support.
+Includes cashback, reloads, and prioritized withdrawals with VIP management.
 
 ### Wagering Requirements
 - Wagering: 35x  
-- Bonus Validity: 21 days  
-- Full wagering on slots (100%)  
+- Bonus Expiry: 21 days  
+- Eligible Games: Slots (100%), others vary  
+- No max cashout on initial bonus  
 ## Region Availability
 🇦🇺 AU & 🇨🇦 CA accepted
-
-
 
 
 > ✳️ These are platforms I personally use and tested across multiple deposits/withdrawals.  
