@@ -4,30 +4,31 @@ Below are platforms I’ve personally tested — with notes on their bonuses, fe
 
 ---
 
-## 🎰 Katsubet Casino  
-🔗 [Join Katsubet](https://katsubet.partners/pd2a32405)
+## 🎰 Skycrown Casino  
+🔗 [Skycrown](https://skycrownlink.com/oc5b0cbd8)
 
-[Additional bonus 50%+100FS](https://katsubet.partners/p57375a91)
+Currently no bonus from me, but regular offers, crypto reloads, and exclusive promo codes are available.
 
-### Bonus Program
-Up to 5 BTC + 100 Free Spins across your first four deposits:
+## 💎 VIP & Promotions  
+- Weekly cashback offers  
+- Reload bonuses (including crypto-specific)  
+- Seasonal slot tournaments  
+- Daily missions with bonus rewards  
 
-- 1st Deposit: 100% up to 1.5 BTC + 100 Free Spins  
-- 2nd Deposit: 75% up to 1.25 BTC  
-- 3rd Deposit: 50% up to 1.25 BTC  
-- 4th Deposit: 100% up to 1 BTC  
+## Game Library  
+- 6,000+ slots and live dealer games  
+- Works great on mobile  
+- Fast search, clean UI
 
-### 💎 VIP Program
-Regular cashback, weekend bonuses, reloads, and birthday gifts.
+## Wagering & Limits  
+- Promo wagering: usually 40x (check offer T&Cs)  
+- Max bet on bonus: 5 EUR or equivalent  
+- Withdrawal limit: up to €5,000 per week  
+- Accepts EUR, AUD, BTC, ETH, LTC, USDT, and more
 
-### Wagering Requirements
-- Deposit Bonuses: 40x  
-- Free Spins: 45x  
-- Max Bet: 0.23 mBTC  
-- Bonus Expiry: 14 days  
-- Slot Contribution: 100%  
-## Region Availability
-🇺🇸 US & 🇦🇺 AU
+## Region Availability  
+🇦🇺 Australia, 🇨🇦 Canada, 🇳🇿 New Zealand, 🇪🇺 Europe
+
 ---
 
 ## 🎰 Crownplay Casino  
